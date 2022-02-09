@@ -1,2 +1,0 @@
-# amybguo.github.io
-smiles
